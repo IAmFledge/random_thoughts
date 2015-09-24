@@ -1,4 +1,4 @@
-# Virtual Reality will make the workePLACE irrelivant.
+# Virtual Reality will make the workPLACE irrelivant.
 It sounds insane now - but not long from now, VR will mean we'll be switching from 'face-to-face' meetings with each other at the flick of a switch. One minute sat in a board room in New York - the next in a cafe in Edinburgh. Physical location will become less and less relevant as the awkwardness and boundary between physical and virtual presence narrows. This is going to upturn property markets as we know them - as they'll become far more influenced by where people actually want to be, than where they need to be.
 
 It's probably one of the most fascinating upcoming changes to human society. Many people reject it as a horrible idea that we'll all be cooped up in virtual environments and never have real interaction with each other - almost like in the Matrix. But that's missing the point.
